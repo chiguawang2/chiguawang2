@@ -1,4 +1,4 @@
-- 👋 免翻墙入口： https://cgw90.com/
+- 👋 免翻墙入口： https://cgw92.com/
 - ⚡ 免翻墙入口1： https://opq.nohgpycb.com/
 - 👀 油管YouTube： https://www.youtube.com/@chiguawang6
 - 🌱 Tiktok： https://www.tiktok.com/@cgwanglife
