@@ -1,4 +1,4 @@
-- 👋 免翻墙入口： https://cgw98.com/
+- 👋 免翻墙入口： https://cgwang1.com/
 - ⚡ 免翻墙入口1： https://abc.ctybbkdh.cc
 - 👀 油管YouTube： https://www.youtube.com/@chiguawang6
 - 🌱 Tiktok： https://www.tiktok.com/@cgwanglife
