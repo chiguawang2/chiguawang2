@@ -1,12 +1,11 @@
-- 👋 免翻墙入口： https://cgwang8.com/
-- ⚡ 免翻墙入口1： https://abc.ctybbkdh.cc
-- 👀 油管YouTube： https://www.youtube.com/@chiguawang6
+- 👋 免翻墙入口： https://cgwang10.com/
+- ⚡ 免翻墙入口1： https://abc.riajkxus.xyz
 - 🌱 Tiktok： https://www.tiktok.com/@cgwanglife
 - 💞️ 官方推特：   https://x.com/chiguawang67
 - 📫 
 - 😄 官方电报（telegram）群：https://t.me/cgwang
-- ⚡ 吃瓜网App: https://cgw.kfkyjkefu.net
-- ⚡ 吃瓜导航: https://b4b0.9yd6vcm.com
+- ⚡ 吃瓜网App: https://cgw.resmuxs.cc
+- ⚡ 吃瓜导航: https://b4b0.bbfjqvm.com
 - ⚡ QQ群： [http://g.ykfeu50.cn/s/1Fj1](http://y.sjpul29.cn/s/QYie)
 - 
 - 📫 新地址获取:
