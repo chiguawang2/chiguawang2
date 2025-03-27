@@ -1,5 +1,5 @@
-- 👋 免翻墙入口： https://cgwang10.com/
-- ⚡ 免翻墙入口1： https://abc.riajkxus.xyz
+- 👋 免翻墙入口： https://cgwang12.com/
+- ⚡ 免翻墙入口1： https://abc.uipuffx.xyz
 - 🌱 Tiktok： https://www.tiktok.com/@cgwanglife
 - 💞️ 官方推特：   https://x.com/chiguawang67
 - 📫 
