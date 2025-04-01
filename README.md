@@ -5,7 +5,7 @@
 - 📫 
 - 😄 官方电报（telegram）群：https://t.me/cgwang
 - ⚡ 吃瓜网App: https://cgw.resmuxs.cc
-- ⚡ 吃瓜导航: https://b4b0.bbfjqvm.com
+- ⚡ 吃瓜导航: https://b4b0.bkjneoji.cc
 - ⚡ QQ群： [http://g.ykfeu50.cn/s/1Fj1](http://y.sjpul29.cn/s/QYie)
 - 
 - 📫 新地址获取:
