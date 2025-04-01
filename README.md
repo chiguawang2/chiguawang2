@@ -1,6 +1,5 @@
 - 👋 免翻墙入口： https://cgwang13.com/
 - ⚡ 免翻墙入口1： https://hgh.rcotjgw.xyz
-- 🌱 Tiktok： https://www.tiktok.com/@cgwanglife
 - 💞️ 官方推特：   https://x.com/chiguawang67
 - 📫 
 - 😄 官方电报（telegram）群：https://t.me/cgwang
