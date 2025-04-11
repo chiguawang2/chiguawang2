@@ -1,9 +1,7 @@
 - 👋 免翻墙入口： https://cgwang16.com/
-- ⚡ 免翻墙入口1： https://hgh.rcotjgw.xyz
 - 💞️ 官方推特：   https://x.com/chiguawang67
-- 📫 
 - 😄 官方电报（telegram）群：https://t.me/cgwang
-- ⚡ 吃瓜网App: https://cgw.eqhsrcaq.cc
+- ⚡ 吃瓜网App: https://cgw.resmuxs.cc
 - ⚡ 吃瓜导航: https://b4b0.xvpjovy.xyz
 - ⚡ QQ群：http://y.sjpul29.cn/s/QYie
 - 
