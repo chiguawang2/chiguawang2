@@ -1,8 +1,8 @@
-- 👋 免翻墙入口： https://cgwang75.com/
+- 👋 免翻墙入口： https://cgwang76.com/
 - 💞️ 官方推特：   https://x.com/chiguawang67
 - 😄 官方电报（telegram）群：https://t.me/cgwang
-- ⚡ 吃瓜网App: https://cgw.xsmeutz.xyz
-- ⚡ 吃瓜导航: https://b4b0.qgcengi.xyz 
+- ⚡ 吃瓜网App: https://cgw.ervkbzk.cc
+- ⚡ 吃瓜导航: https://b4b0.etevmwc.cc 
 - ⚡ QQ群：http://y.sjpul29.cn/s/QYie
 - 
 - 📫 新地址获取:
