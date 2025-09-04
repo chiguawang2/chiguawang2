@@ -3,7 +3,7 @@
 - 😄 官方电报（telegram）群：https://t.me/cgwang
 - ⚡ 吃瓜网App: https://cgw.ervkbzk.cc
 - ⚡ 吃瓜导航: https://b4b0.etevmwc.cc 
-- ⚡ QQ群：http://gg.tfxyimwef97.cn/t/NSWG
+- ⚡ QQ群：http://y.a2q7fcadf33.cn/t/4yLZ
 - 📫 新地址获取:
 方法一： 发送“吃瓜网”至 cgdizhi@gmail.com 获取最新吃瓜地址
 
