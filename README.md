@@ -1,4 +1,4 @@
-- 👋 免翻墙入口： https://cgwang84.com/
+- 👋 免翻墙入口： https://cgwang85.com/
 - 💞️ 官方推特：   https://x.com/chiguawang67
 - 😄 官方电报（telegram）群：https://t.me/cgwang
 - ⚡ 吃瓜网App: https://cgw.wjtlnyn.xyz
