@@ -1,8 +1,8 @@
-- 👋 免翻墙入口： https://cgwang93.com/
+- 👋 免翻墙入口： https://cgwang94.com/
 - 💞️ 官方推特：   https://x.com/chiguawang67
 - 😄 官方电报（telegram）群：https://t.me/cgwang
-- ⚡ 吃瓜网App:  https://app32.fsiploe.cc
-- ⚡ 吃瓜导航 :  https://dh95.ftywoxut.cc
+- ⚡ 吃瓜网App:  https://app33.lfmmtwct.xyz
+- ⚡ 吃瓜导航 :  https://dh96.lhatvcya.xyz
 - 📫 新地址获取:
 方法一： 发送“吃瓜网”至 cgdizhi@gmail.com 获取最新吃瓜地址
 
